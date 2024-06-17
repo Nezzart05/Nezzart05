@@ -1,0 +1,1 @@
+- ⚡ 3D/2D Artist exploring new frontiers of video games, VR, and AI
